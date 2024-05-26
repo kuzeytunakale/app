@@ -1,0 +1,1 @@
+Bu dosyayı okuyorsan ya benim çevremdeki kişilerden birisin ve ben sana bu dosyayı okumanı söyledim yada kodlama alanında çok bilgili ve zeki bir kişisin. Sen hangisi olursan ol bu web sitesine girdiğin için teşekkür ederim.
